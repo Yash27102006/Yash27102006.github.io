@@ -20,11 +20,8 @@ The beginning of my college journey starts with listening and reciting kirtan at
 Prof. Dr. Sehijpal Singh warmly welcomed us to the GNDEC campus and introduced the various facilities and benefits available. The Director of Nankana Sahib Education Trust shared the college's history, highlighting its founding to honor the birthplace of Guru Nanak Dev Ji, Nankana Sahib. Established in 1956, the college aimed to address economic backwardness through technology.The Director emphasized the college's vision of admitting 70% rural students to benefit from technological advancements.Er. Jiwandeep Singh, a PCS officer, advised us to be proactive and seize opportunities as they arise. He encouraged us to learn from mistakes and never let opportunities slip away.SSP Rajeshwar Singh inspired us to follow a path of good deeds and helping others. He reminded us that every action counts and encouraged us to embrace four essential phrases:
 
 1. I am sorry
-
 2. Please forgive me
-
 3. Thank you
-
 4. I love you
 
 He emphasized the importance of acknowledging our mistakes and seeking forgiveness from God and ourselves. He also reminded us that, like Newton's third law of motion, our actions have consequences, and we reap what we sow."These changes mainly focus on maintaining consistent punctuation and ensuring clarity in expressing the ideas presented.
@@ -51,7 +48,7 @@ Dr. Arvind Dhingra explained the membership structure. We also gained an underst
 Additionally, detailed information about the college's scholarship schemes was provided, along with inspiring success stories of alumni who are making significant contributions nationally and internationally.Key takeaways from today's speakers include:
 1. Life is about change and growth.
 2. The 3 Ps for Success:
-         -Passion
-         -Persistence
-         -Patience"
+-Passion
+-Persistence
+-Patience"
 
