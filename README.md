@@ -48,14 +48,10 @@ Today's session provided valuable insights into the college's societies and club
 
 Dr. Arvind Dhingra explained the membership structure. We also gained an understanding of the college's examination system, CGPA calculation, and strategies for exam preparation.
 
-Additionally, detailed information about the college's scholarship schemes was provided, along with inspiring success stories of alumni who are making significant contributions nationally and internationally.
-
-Key takeaways from today's speakers include:
-
+Additionally, detailed information about the college's scholarship schemes was provided, along with inspiring success stories of alumni who are making significant contributions nationally and internationally.Key takeaways from today's speakers include:
 1. Life is about change and growth.
 2. The 3 Ps for Success:
-
-             -Passion
-             -Persistence
-             -Patience"
+         -Passion
+         -Persistence
+         -Patience"
 
