@@ -50,6 +50,6 @@ Additionally, detailed information about the college's scholarship schemes was p
 2. The 3 Ps for Success:
 
 - Passion
- - Persistence
-    - Patience
+- Persistence
+- Patience
 
