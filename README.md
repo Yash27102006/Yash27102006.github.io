@@ -48,7 +48,8 @@ Dr. Arvind Dhingra explained the membership structure. We also gained an underst
 Additionally, detailed information about the college's scholarship schemes was provided, along with inspiring success stories of alumni who are making significant contributions nationally and internationally.Key takeaways from today's speakers include:
 1. Life is about change and growth.
 2. The 3 Ps for Success:
-            - Passion
-            - Persistence
-            - Patience
+
+- Passion
+ - Persistence
+    - Patience
 
