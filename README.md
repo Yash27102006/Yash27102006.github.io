@@ -13,6 +13,7 @@ The beginning of my college journey starts with listening and reciting kirtan at
 | 2. | NSET Dir.S. Inderpal Singh |
 | 3. | Er. Jiwandeep Singh |
 | 4. | SSP Rajeshwar Singh |
+
 "Prof. Dr. Sehijpal Singh warmly welcomed us to the GNDEC campus and introduced the various facilities and benefits available. The Director of Nankana Sahib Education Trust shared the college's history, highlighting its founding to honor the birthplace of Guru Nanak Dev Ji, Nankana Sahib. Established in 1956, the college aimed to address economic backwardness through technology.The Director emphasized the college's vision of admitting 70% rural students to benefit from technological advancements.Er. Jiwandeep Singh, a PCS officer, advised us to be proactive and seize opportunities as they arise. He encouraged us to learn from mistakes and never let opportunities slip away.SSP Rajeshwar Singh inspired us to follow a path of good deeds and helping others. He reminded us that every action counts and encouraged us to embrace four essential phrases:
 >I am sorry
 >Please forgive me
